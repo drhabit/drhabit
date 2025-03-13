@@ -1,5 +1,5 @@
 ## <p align="center"> hi i'm CD welcome to my github
-<p align="center"> i know how to code but i don't feel like it right now! </p>
+<p align="center"> i know how to code but i still don't feel like doing so </p>
 
 <p align="center"> he/him, 22, dissociatively identified, et cetera. <br>
 i love to chat please feel free to chat with me <br>
