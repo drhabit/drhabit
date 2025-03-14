@@ -1,7 +1,7 @@
-## <p align="center"> MY NAME IS 1X1X1X1.
+## <p align="center"> This round's killer is... 1x1x1x1 </p>
 <p align="center"> I HAVE NO INTEREST IN FIXING THIS CODING TODAY. </p>
 
-<p align="center"> ANY PRONOUNS, 22, DISSOCIATIVE. <br>
+<p align="center"> 1X(1X1X1). ANY PRONOUNS, 22, DISSOCIATIVE. <br>
 DO NOT BE FOOLED BY MY HATERLY NATURE. I WILL TALK IF YOU CHAT WITH ME. <br>
 I AM A "SYSTEM" AND MY COLLECTIVE IDENTITY IS "CD" AND "HE/HIM". <br>
 ASK FOR MY OTHER SOCIALS IF YOU MUST. </p>
