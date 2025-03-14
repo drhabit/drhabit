@@ -1,13 +1,13 @@
-## <p align="center"> hi i'm CD welcome to my github
-<p align="center"> i know how to code but i still don't feel like doing so </p>
+## <p align="center"> MY NAME IS 1X1X1X1.
+<p align="center"> I HAVE NO INTEREST IN FIXING THIS CODING TODAY. </p>
 
-<p align="center"> he/him, 22, dissociatively identified, et cetera. <br>
-i love to chat please feel free to chat with me <br>
-i'm a system. CD and he/him are my "collective" identity. <br>
-ask for my other socials if we've talked before. </p>
+<p align="center"> ANY PRONOUNS, 22, DISSOCIATIVE. <br>
+DO NOT BE FOOLED BY MY HATERLY NATURE. I WILL TALK IF YOU CHAT WITH ME. <br>
+I AM A "SYSTEM" AND MY COLLECTIVE IDENTITY IS "CD" AND "HE/HIM". <br>
+ASK FOR MY OTHER SOCIALS IF YOU MUST. </p>
 
-<p align="center"> proshippers go in a pit and do not come back out. <br>
-i will hide you if i do not like you. <br>
-i am very unfamiliar with ponytown language & behavior <br> 
-i have no intention to learn. i am usually just here to sit with my friends! <br>
-other "system members" may change this github to fit them if they feel like it </p>
+<p align="center"> PROSHIPPERS. I HAVE NO WORDS FOR YOU. LEAVE. <br>
+I HATE MANY THINGS AND THUS HIDE MANY PEOPLE IF I DO NOT LIKE THEM. <br>
+I AM VERY UNFAMILIAR WITH PONYTOWN LANGUAGE AND BEHAVIORS. <br> 
+I AM SIMPLY HERE TO SIT WITH MY ACQUAINTANCES AND PERHAPS SEE FORSAKEN HORSES. <br>
+OTHER PARTS MAY CHANGE THIS GITHUB AS NEEDED. </p>
