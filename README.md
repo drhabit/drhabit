@@ -1,13 +1,16 @@
-## <p align="center"> This round's killer is... 1x1x1x1 </p>
-<p align="center"> I HAVE NO INTEREST IN FIXING THIS CODING TODAY. </p>
+<p align="center"><b><ins>CD</ins></b> he/him <i>collectively</i>
+<br> 22 year old DID system
+<br> i am just here to chill
+<br> c + h is fine</p>
 
-<p align="center"> 1X(1X1X1). ANY PRONOUNS, 22, DISSOCIATIVE. <br>
-DO NOT BE FOOLED BY MY HATERLY NATURE. I WILL TALK IF YOU CHAT WITH ME. <br>
-I AM A "SYSTEM" AND MY COLLECTIVE IDENTITY IS "CD" AND "HE/HIM". <br>
-ASK FOR MY OTHER SOCIALS IF YOU MUST. </p>
 
-<p align="center"> PROSHIPPERS. I HAVE NO WORDS FOR YOU. LEAVE. <br>
-I HATE MANY THINGS AND THUS HIDE MANY PEOPLE IF I DO NOT LIKE THEM. <br>
-I AM VERY UNFAMILIAR WITH PONYTOWN LANGUAGE AND BEHAVIORS. <br> 
-I AM SIMPLY HERE TO SIT WITH MY ACQUAINTANCES AND PERHAPS SEE FORSAKEN HORSES. <br>
-OTHER PARTS MAY CHANGE THIS GITHUB AS NEEDED. </p>
+---
+
+<p align="center"><i>just so you know:</i> i hate proshippers
+<br> or comshippers or darkshippers or whatever
+<br> you call yourselves and also i am unfamiliar
+<br> with a lot of pony.town lingo because i have a job. </p>
+
+---
+<p align="center"> about our current main fronters:
+<br> <a href="https://github.com/drhabit/hatred">1x1x1x1</a> & <a href="https://github.com/drhabit/respawn">two time</a> & <a href="https://github.com/drhabit/pest">pest</a> & <a href="https://github.com/drhabit/inspekta">inspekta</a></p>
