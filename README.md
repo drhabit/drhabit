@@ -1,7 +1,7 @@
 <p align="center"><b><ins>CD</ins></b> he/him <i>collectively</i>
 <br> 22 year old DID system
 <br> i am just here to chill
-<br> c + h is fine</p>
+<br> c + h is welcome</p>
 
 
 ---
