@@ -14,4 +14,4 @@
 ---
 <p align="center"> about our current main fronters:
 <br> <a href="https://github.com/drhabit/hatred">1x1x1x1</a> & <a href="https://github.com/drhabit/respawn">two time</a> & <a href="https://github.com/drhabit/pest">pest</a> & <a href="https://github.com/drhabit/inspekta">inspekta</a>
-<br> <sub>all of these are wips! only two time's is done.</sub></p>
+<br> <sub>all of these are wips! two time and pest are finished.</sub></p>
