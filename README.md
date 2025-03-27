@@ -9,7 +9,7 @@
 <p align="center"><i>just so you know:</i> i hate proshippers
 <br> or comshippers or darkshippers or whatever
 <br> you call yourselves and also i am unfamiliar
-<br> with a lot of pony.town lingo because i have a job. </p>
+<br> with a lot of pony.town lingo because i log off. </p>
 
 ---
 <p align="center"> about our current main fronters:
