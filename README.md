@@ -2,7 +2,7 @@
 <br> 22 year old DID system
 <br> i am just here to chill
 <br> c + h is welcome
-<br> i would prefer you not use tone tags with me</p>
+<br> refrain from using tone tags</p>
 
 
 ---
