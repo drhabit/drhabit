@@ -1,7 +1,8 @@
 <p align="center"><b><ins>CD</ins></b> he/him <i>collectively</i>
 <br> 22 year old DID system
 <br> i am just here to chill
-<br> c + h is welcome</p>
+<br> c + h is welcome
+<br> i would prefer you not use tone tags with me</p>
 
 
 ---
