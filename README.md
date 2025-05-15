@@ -13,6 +13,7 @@
 <br> with a lot of pony.town lingo because i log off. </p>
 
 ---
-<p align="center"> about our current main fronters:
+<p align="center"> about some of our fronters:
 <br> <a href="https://github.com/drhabit/hatred">1x1x1x1</a> & <a href="https://github.com/drhabit/respawn">two time</a> & <a href="https://github.com/drhabit/pest">pest</a> & <a href="https://github.com/drhabit/inspekta">inspekta</a>
-<br> <sub>all are finished except inspekta's!</sub></p>
+  <br>elliot & deimos & isaac
+<br> <sub>most are a WIP and the host doesn't have one because he hates pony.town</sub></p>
